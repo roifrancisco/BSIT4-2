@@ -27,3 +27,5 @@ Harvey D. Gultiano
 Princess L.Salvador
 Ken Aldrich R. Rosales
 Zedrick P. Sanopao
+Paul Adrian B. Cayago
+John Rey B. Calandria
